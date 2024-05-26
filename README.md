@@ -4,7 +4,7 @@
 A small code for my mum to prank 💖
 
 
-# English traduction for the web site Text
+# English traduction for the web site text
 | Tunisian Language |  English Language               |
 | :-------- |  :------------------------- |
 | `kol 3am w enti b5ir 💖 n7bek barcha. thank you for beeing always a blessing from allah .. 💖` | Happy Mother day 💖 I Love You So Much. thank you for beeing always a blessing from allah .. 💖 |
